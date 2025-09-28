@@ -196,7 +196,7 @@ This project is protected by copyright and is licensed under a non-copy and no-u
 
 **All rights reserved.** This software and its documentation are proprietary and confidential. No part of this project may be copied, distributed, modified, or used without explicit written consent from the copyright owner.
 
-For licensing inquiries, please contact: legal@ieltsmastery.com
+For licensing inquiries, please contact: +91 9821850868
 
 
 
